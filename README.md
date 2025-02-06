@@ -1,1 +1,0 @@
-# citizen-high-school
